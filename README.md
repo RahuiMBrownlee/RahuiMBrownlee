@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @RahuiMBrownlee
+- 👋 Hi, I’m Rahui Brownlee
 - 👀 I’m interested in cybersecurity and sports
 - 🌱 I’m currently studying at Auckland University
 
